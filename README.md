@@ -224,4 +224,4 @@ Up The Video Game is offered as a complete free version. All features are includ
 Don't miss out on the adventure! Download Up The Video Game now and join Carl and Russell on their exciting journey!
 
 ---
-**Last updated:** 2026-10-02 08:18:00 UTC
+**Last updated:** 2026-10-02 15:20:43 UTC
